@@ -1,1 +1,1 @@
-O projeto será projetado assim que for finalizado o processo de pensamento e estruturação, que será realizado pela equipe de projetos, a qual está produzindo o projeto que irá se tornar o futuro projeto.
+projeto
